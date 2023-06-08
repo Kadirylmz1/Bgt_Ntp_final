@@ -2,4 +2,4 @@
 
 Giresun üniversitesi Şebinkarahisar MYO.
 
-KAdir Yılmaz
+Kadir Yılmaz
